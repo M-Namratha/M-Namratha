@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am currently working as a senior technical associate <br>I am self driven individual<br>Dedicated and passionate about learning new technologies<br>Love dancing, travelling<br>Ask me about web designing
+I am currently working as a senior technical associate for US firm <br>I am self driven individual<br>Dedicated and passionate about learning new technologies<br>Ask me about web designing<br>Love dancing, travelling
 
 
 ## 🌐 Socials:
